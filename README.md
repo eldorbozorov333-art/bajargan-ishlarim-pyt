@@ -1,0 +1,1 @@
+# bajargan-ishlarim-pyt
